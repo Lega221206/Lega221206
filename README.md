@@ -1,4 +1,4 @@
-Seja muito bem-vindo(A) ao meu perfil 👩‍🎓
+**Seja muito bem-vindo(A) ao meu perfil** 👩‍🎓
 
 Meu nome é Lega
 
